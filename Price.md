@@ -1,1 +1,1 @@
-VRFusion 市場定價為1440 美元
+VRFusion 市場定價為599 美元
